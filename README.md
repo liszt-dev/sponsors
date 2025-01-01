@@ -6,6 +6,7 @@ Eventhough financial or material contributions are something I have never asked 
 1. Jacob Haase (23.11.2024)
 2. Andrea Gambaro (17.12.2024)
 3. Ingo aka. Gelrav (17.12.2024)
+4. Ullrich Baierl (01.01.2025)
 ```
 
 > **Note:** If you wish to support me, [buy me a cup of coffee](https://www.paypal.com/paypalme/felixpat)
